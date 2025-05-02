@@ -1,4 +1,4 @@
-# Marcos Barreto:happy:
+# Marcos Barreto
 
 ## 26 anos
 
